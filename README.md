@@ -10,6 +10,7 @@ Miércoles 10 de junio - 20:00 UTC-4 | Sesión a cargo de [Macarena Valenzuela](
 ## Sesión 2
 
 ## Sesión 3
+https://vimeo.com/432356626
 
 ## Sesión 4
 
